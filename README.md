@@ -6,9 +6,9 @@
 <img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=40&duration=4000&pause=10&color=c96f92&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=sweetness,+sweetness+i+was+only+joking;when+i+said+id+like+to;SMASH+every+tooth+in+your+head!+%E2%99%A5" width="70%" />
 
 ..    
-$\color{#d99c41}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
+$\color{#d99c41}{\textsf{kyupi / aevithis / ausk fur othur naumes...}}$ <br>
   
- $\color{#c96f92}{\textsf{no pronouns, no gender - i am what you see me as}}$ <br>
+ $\color{#c96f92}{\textsf{no prounouns, no gendur - i aum whaut uu see me aus}}$ <br>
  
   
  <a href="https://rentry.co/fivepebbsii">rentry</a> |
@@ -16,8 +16,8 @@ $\color{#d99c41}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
 <a href="https://x.com/kyuparin">twitter</a> |
 <a href="https://en.pronouns.page/@gasa4">pronounspage</a>
   
-   $\color{#d99c41}{\textsf{i struggle with paranoid schizophrenia, severe social anxiety and OCD}}$ <br> 
-     $\color{#d99c41}{\textsf{diagnosed! please, interact with caution <3 :-)}}$ <br> 
+   $\color{#d99c41}{\textsf{i struuggle wiif pauranoid schizophrenia, seveure social anxiiety aund OCD}}$ <br> 
+     $\color{#d99c41}{\textsf{diaugnosed! pleause interauct wiif cautioun <3 :-)}}$ <br> 
     
 
 
