@@ -37,7 +37,7 @@ $\color{#d99c41}{\textsf{kyupi / aevithis / ausk fur othur naumes...}}$ <br>
 * jx1dx1 - ihfl
 * the naumes "andrew" "jake" "cirum" !!!dunt do it
 * radqueers 
-* mmoureto be added..
+* attendant - regretevator
 
 
 
