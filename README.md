@@ -31,11 +31,13 @@ $\color{#d99c41}{\textsf{kyupi / aevithis / ausk fur othur naumes...}}$ <br>
 
 
 
-
-
-https://github.com/user-attachments/assets/5b5c8637-a398-49dc-b6c0-ab179e101021
-
-
+# dunt mention dis chauracters/fandujms/things arouund me!pleas
+* andrew - bad things
+* seildirectory
+* jx1dx1 - ihfl
+* the naumes "andrew" "jake" "cirum" !!!dunt do it
+* radqueers 
+* mmoureto be added..
 
 
 
