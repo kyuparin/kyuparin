@@ -35,7 +35,7 @@ $\color{#d99c41}{\textsf{kyupi / aevithis / ausk fur othur naumes...}}$ <br>
 * andrew - bad things
 * seildirectory
 * jx1dx1 - ihfl
-* the naumes "andrew" "jake" "cirum" !!!dunt do it
+* the naumes "andrew" "jake" "cirum" !!!dunt do it! he miught appurr iif u sauy hius name thriiec..
 * radqueers 
 * attendant - regretevator
 
