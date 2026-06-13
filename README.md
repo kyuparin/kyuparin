@@ -3,7 +3,7 @@
  
 <div align="center">
 <img src="https://files.catbox.moe/opfxtf.webp" width="27%" align="right" />
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=40&duration=4000&pause=10&color=ff0000&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=MACHINE,+OH+MACHINE!;LET+YOUR+CUP+OVERFLOW+%E2%99%A5" width="70%" />
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=60&duration=4000&pause=10&color=ff0000&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=MACHINE,+OH+MACHINE!;LET+YOUR+CUP+OVERFLOW+%E2%99%A5" width="70%" />
 
 ![](https://64.media.tumblr.com/627e8c80cb67a5ab0f4fdc5c7fda354e/2d3ece5312169ad0-95/s400x600/8241304904ab5f2950306ce0ce11530a16442858.gifv)
 
