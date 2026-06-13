@@ -2,7 +2,7 @@
 
  
 <div align="center">
-<img src="https://files.catbox.moe/6zq688.jpg" width="27%" align="right" />
+<img src="https://files.catbox.moe/4qvnss.jpg" width="27%" align="right" />
 <img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=40&duration=4000&pause=10&color=c96f92&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=sweetness,+sweetness+i+was+only+joking;when+i+said+id+like+to;SMASH+every+tooth+in+your+head!+%E2%99%A5" width="70%" />
 
 ..    
