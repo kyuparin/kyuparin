@@ -28,7 +28,7 @@
 
   
    $\color{#ffffff}{\textsf{diagnosed with schizophrenia and harm, magical thinking OCD}}$ <br> 
-     $\color{#ffffff}{\textsf{so/sx 136 so1 1w2 xnfj ok?}}$ <br> 
+     $\color{#ffffff}{\textsf{ISTJ Si-Te-Fi-Ne 1w2 so/sx 163 VFLE Choleric-Melancholic ET(S) LSE RLOEN}}$ <br> 
 
    
    <img src="https://64.media.tumblr.com/7c0707a19ef886ccafd318740145cccf/873f0e78b884bc84-a0/s1280x1920/d477164ec8d024ae0eed92e8fb71618ff768533f.pnj" width="50%" align="center" style="margin-bottom: 20px;" />
