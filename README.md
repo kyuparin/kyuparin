@@ -13,8 +13,10 @@
 
 
   
- $\color{#fc0303}{\textsf{no prounouns, no gendur - i aum whaut uu see me aus}}$ <br>
- 
+
+ $\color{#fc0303}{\textsf{my name is kyuparin metaphorisimilie }}$ <br>
+ $\color{#fc0303}{\textsf{genderfluid quoiromantic panromantic any/she }}$ <br>
+  $\color{#fc0303}{\textsf{gabriel ultrakill irl, selfshipper of many }}$ <br>
   
  <a href="https://rentry.co/fivepebbsii">rentry</a> |
 <a href="https://gasa4.atabook.org/">atabook</a> |
@@ -25,8 +27,8 @@
 
 
   
-   $\color{#ffffff}{\textsf{i struuggle wiif pauranoid schizophrenia, seveure social anxiiety aund OCD}}$ <br> 
-     $\color{#ffffff}{\textsf{diaugnosed! pleause interauct wiif cautioun <3 :-)}}$ <br> 
+   $\color{#ffffff}{\textsf{diagnosed with schizophrenia and harm, magical thinking OCD}}$ <br> 
+     $\color{#ffffff}{\textsf{so/sx 136 so1 1w2 xnfj ok?}}$ <br> 
 
    
    <img src="https://64.media.tumblr.com/7c0707a19ef886ccafd318740145cccf/873f0e78b884bc84-a0/s1280x1920/d477164ec8d024ae0eed92e8fb71618ff768533f.pnj" width="50%" align="center" style="margin-bottom: 20px;" />
