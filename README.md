@@ -48,9 +48,9 @@ https://github.com/user-attachments/assets/1d12b475-a285-41b8-957c-d420d40319f0
 
 
 
-# dunt mention dis chauracters/fandujms/things arouund me!pleas
+# DONT MENTION THIS AROUND ME
 * andrew - bad things
-* the naumes "andrew" "jake" "cirum" !!!dunt do it! he miught appurr iif u sauy hius name thriiec..
+* the names "andrew" "jake" "cirum" !!
 * radqueers 
 * attendant - regretevator
 
