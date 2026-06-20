@@ -24,13 +24,11 @@ TS WIP OK
   <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="88">
 
 
-txtxtxtxttxtxtxtxtxttx
-
-txtxtxtxttxtxtxtxtxttx
-
-txtxtxtxttxtxtxtxtxttx
-
-txtxtxtxttxtxtxtxtxttx
+ 
+ <a href="https://rentry.co/fivepebbsii">rentry</a> |
+<a href="https://gasa4.atabook.org/">atabook</a> |
+<a href="https://x.com/kyuparin">twitter</a> |
+<a href="https://en.pronouns.page/@gasa4">pronounspage</a>
 
 xtxtxtxttxtxtxtxtxttx
 
