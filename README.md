@@ -4,9 +4,7 @@
 
 
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/4963327eb1ad76e1da4c99812bc7635f/54ea208d7b49094b-2c/s540x810/c4db1193f01f62b8a0ef7e41e7895c75bbf7e205.pnj" width="400">
-</p> 
+
 
 <p align="center">
   <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="88">
@@ -45,13 +43,13 @@ TS WIP OK
 <a href="https://x.com/kyuparin">twitter</a> |
 <a href="https://en.pronouns.page/@gasa4">pronounspage</a>
 
-xtxtxtxttxtxtxtxtxttx
+$\color{#ffffff}{\textsf{dx schizophrenia + ocd}}$
 
-txtxtxtxttxtxtxtxtxttx
+ $\color{#fc0303}{\textsf{genderless quoiromantic pan}}$ <br>
 
-txtxtxtxttxtxtxtxtxttx
+$\color{#ffffff}{\textsf{gabriel ultrakill fictkin}}$
 
-txtxtxtxttxtxtxtxtxttx
+ $\color{#fc0303}{\textsf{istj so1 so/sx 136 VFLE cholmel}}$ <br>
 
 txtxtxtxttxtxtxtxtxttx
 
