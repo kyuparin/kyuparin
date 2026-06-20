@@ -28,7 +28,6 @@ $\color{#ffffff}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
 
 <td align="center">
 
-TS WIP OK
 
 
  $\color{#fc0303}{\textsf{kyuparin / gabriel / other}}$ <br>
@@ -47,13 +46,16 @@ $\color{#ffffff}{\textsf{dx schizophrenia + ocd}}$
 
  $\color{#fc0303}{\textsf{genderless quoiromantic pan}}$ <br>
 
-$\color{#ffffff}{\textsf{gabriel ultrakill fictkin}}$
+$\color{#ffffff}{\textsf{gabriel ultrakill irl}}$
 
  $\color{#fc0303}{\textsf{istj so1 so/sx 136 VFLE cholmel}}$ <br>
 
-txtxtxtxttxtxtxtxtxttx
+ $\color{#fffff}{\textsf{turkish + bosnian}}$ <br>
 
-txtxtxtxttxtxtxtxtxttx
+ $\color{#fc0303}{\textsf{raging angelkin}}$ <br>
+
+ <img src="https://64.media.tumblr.com/231531f5629278daab5c94c0426a27e9/5760c1c2c519ad28-5b/s100x200/85ea348fd893ecd901e076dee523d9265e2fccfe.gifv" width="88">
+
 
 </td>
 
