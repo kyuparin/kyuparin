@@ -1,6 +1,5 @@
-<p align="center">
-  <img src="https://i.pinimg.com/1200x/16/70/bb/1670bb76585918ab8275b98eec8f8075.jpg" width="800">
-</p>
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=60&duration=4000&pause=10&color=ff0000&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=MANKIND+IS+DEAD,+BLOOD+IS+FUEL;+HELL+IS+FULL.+%E2%99%A5;" width="70%" />
+
 
 
 <table>
