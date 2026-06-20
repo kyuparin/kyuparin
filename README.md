@@ -10,10 +10,14 @@
 </p>
 
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/c4/87/21/c487213e181551c22c0d8098add432a1.jpg" width="186">
+  <img src="https://i.pinimg.com/1200x/c4/87/21/c487213e181551c22c0d8098add432a1.jpg" width="176">
 </p>
 
 
+<p align="center">
+
+ $\color{#fc0303}{\textsf{MANKIND IS}}$ <br>  $\color{#fc0303}{\textsf{DEAD}}$ <br>
+</p> 
 
 <table>
 <tr>
