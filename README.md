@@ -15,8 +15,7 @@
 
 
 <p align="center">
-
- $\color{#fc0303}{\textsf{MANKIND IS}}$ <br>  $\color{#fc0303}{\textsf{DEAD}}$ <br>
+$\color{#ffffff}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\color{#fc0303}{\textsf{BLOOD}}$  $\color{#ffffff}{\textsf{IS FUEL}}$ <br> $\color{#ffffff}{\textsf{HELL IS}}$  $\color{#fc0303}{\textsf{FULL}}$ <br>
 </p> 
 
 <table>
