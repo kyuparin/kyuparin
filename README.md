@@ -6,7 +6,7 @@
 <table>
 <tr>
 <td align="center">
-<img src="https://pbs.twimg.com/media/GYiuWaSa0AAvanM?format=jpg&name=small" width="300">
+<img src="https://pbs.twimg.com/media/GYiuWaSa0AAvanM?format=jpg&name=small" width="200">
 </td>
 
 <td align="center">
@@ -32,7 +32,7 @@ xtxtxtxttxtxtxtxtxttx
 </td>
 
 <td align="center">
-<img src="https://pbs.twimg.com/media/GYiuWaRasAApqrO?format=jpg&name=large" width="300">
+<img src="https://pbs.twimg.com/media/GYiuWaRasAApqrO?format=jpg&name=large" width="200">
 </td>
 </tr>
 </table>
