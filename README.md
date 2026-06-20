@@ -4,6 +4,14 @@
   <img src="https://64.media.tumblr.com/4963327eb1ad76e1da4c99812bc7635f/54ea208d7b49094b-2c/s540x810/c4db1193f01f62b8a0ef7e41e7895c75bbf7e205.pnj" width="400">
 </p> 
 
+<p align="center">
+  <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="88">
+  <img src="https://64.media.tumblr.com/7a75a61ff9afe947b0bf4c358b2f2c4b/1eb33066a9c244bf-5f/s250x400/9a170477ed80c2a89f5f0f377f85c092b75fca4b.gifv" width="88">
+</p>
+
+<p align="center">
+  <img src="https://i.pinimg.com/1200x/c4/87/21/c487213e181551c22c0d8098add432a1.jpg" width="186">
+</p>
 
 
 
