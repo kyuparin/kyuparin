@@ -13,7 +13,7 @@ TS WIP OK
 
 <p align="center">
   <img src="https://64.media.tumblr.com/7a75a61ff9afe947b0bf4c358b2f2c4b/1eb33066a9c244bf-5f/s250x400/9a170477ed80c2a89f5f0f377f85c092b75fca4b.gifv" width="88">
-  <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="98">
+  <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="88">
 </p>
 
 txtxtxtxttxtxtxtxtxttx
