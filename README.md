@@ -6,7 +6,7 @@
 <table>
 <tr>
 <td align="center">
-<img src="https://pbs.twimg.com/media/GYiuWaSa0AAvanM?format=jpg&name=small" width="200">
+<img src="https://pbs.twimg.com/media/GYiuWaSa0AAvanM?format=jpg&name=small" width="300">
 </td>
 
 <td align="center">
@@ -29,10 +29,21 @@ txtxtxtxttxtxtxtxtxttx
 txtxtxtxttxtxtxtxtxttx
 
 xtxtxtxttxtxtxtxtxttx
+
+txtxtxtxttxtxtxtxtxttx
+
+txtxtxtxttxtxtxtxtxttx
+
+txtxtxtxttxtxtxtxtxttx
+
+txtxtxtxttxtxtxtxtxttx
+
+txtxtxtxttxtxtxtxtxttx
+
 </td>
 
 <td align="center">
-<img src="https://pbs.twimg.com/media/GYiuWaRasAApqrO?format=jpg&name=large" width="200">
+<img src="https://pbs.twimg.com/media/GYiuWaRasAApqrO?format=jpg&name=large" width="300">
 </td>
 </tr>
 </table>
