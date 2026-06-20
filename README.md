@@ -33,7 +33,7 @@ $\color{#ffffff}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
  $\color{#fc0303}{\textsf{kyuparin / gabriel / other}}$ <br>
 
 
-  <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="88">
+  <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="88">   
 
 
  
@@ -54,7 +54,7 @@ $\color{#ffffff}{\textsf{gabriel ultrakill irl}}$
 
  $\color{#fc0303}{\textsf{raging angelkin}}$ <br>
 
- <img src="https://64.media.tumblr.com/231531f5629278daab5c94c0426a27e9/5760c1c2c519ad28-5b/s100x200/85ea348fd893ecd901e076dee523d9265e2fccfe.gifv" width="88">
+ <img src="https://64.media.tumblr.com/231531f5629278daab5c94c0426a27e9/5760c1c2c519ad28-5b/s100x200/85ea348fd893ecd901e076dee523d9265e2fccfe.gifv" width="88">  <img src="https://64.media.tumblr.com/ebd8515902b4fe4de044ac55bbe05e29/5760c1c2c519ad28-64/s100x200/c0896fb78702f125929aa82a6750b8921ad6f454.gifv" width="88">  
 
 
 </td>
