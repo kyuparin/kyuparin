@@ -8,7 +8,8 @@
 
 TS WIP OK
 
-txtxtxtxtxttxtxtxtxttxtx
+
+ $\color{#fc0303}{\textsf{my name is kyuparin metaphorisimilie }}$ <br>
 
 xtxtxtxtxttxtxtxtxtxtx
 
