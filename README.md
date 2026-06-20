@@ -1,4 +1,8 @@
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=60&duration=4000&pause=10&color=ff0000&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=BLOOD+IS+FUEL+%E2%99%A5" width="70%" />
+<p align="center">
+  <img src="https://64.media.tumblr.com/64239291985a3aee495a6117b9168b93/d083df8da3513e0a-0c/s2048x3072/16ea45e3a1fcec929af1d2e75a2f637e9824f5b2.gifv" width="800">
+</p> 
+
+
 
 <p align="center">
   <img src="https://64.media.tumblr.com/4963327eb1ad76e1da4c99812bc7635f/54ea208d7b49094b-2c/s540x810/c4db1193f01f62b8a0ef7e41e7895c75bbf7e205.pnj" width="400">
