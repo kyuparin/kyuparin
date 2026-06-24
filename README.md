@@ -71,6 +71,8 @@ $\color{#ffffff}{\textsf{gabriel ultrakill irl}}$
 * the names "andrew" "jake" "cirum" !!
 * radqueers 
 * attendant - regretevator
+* deltarune 
+* ihasafacelulz in general
 
 
 
