@@ -67,12 +67,14 @@ $\color{#ffffff}{\textsf{gabriel ultrakill irl}}$
 
 
 # DONT MENTION THIS AROUND ME
-* andrew - bad things
+
 * the names "andrew" "jake" "cirum" !!
 * radqueers 
 * attendant - regretevator
 * deltarune 
 * ihasafacelulz in general
+* bad things
+* seildirectory or any rblx arg that isnt deivydoestutorials
 
 
 
