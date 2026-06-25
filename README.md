@@ -75,7 +75,7 @@ $\color{#ffffff}{\textsf{gabriel ultrakill irl}}$
 * ihasafacelulz in general
 * bad things
 * seildirectory or any rblx arg that isnt deivydoestutorials
-
+* ocean terror
 
 
 
