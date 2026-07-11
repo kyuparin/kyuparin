@@ -40,7 +40,7 @@ $\color{#ffffff}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
  <a href="https://rentry.co/GabrielUltrakill">rentry</a> |
 <a href="https://gasa4.atabook.org/">atabook</a> |
 <a href="https://x.com/kyuparin">twitter</a> |
-<a href="https://en.pronouns.page/@gasa4">pronounspage</a>
+<a href="https://en.pronouns.page/@ultrakilling">pronounspage</a>
 
 $\color{#ffffff}{\textsf{dx schizophrenia + ocd}}$
 
