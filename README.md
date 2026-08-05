@@ -17,7 +17,7 @@
 </p>
 
 
-im on pt hall of fame hi <img width="277" height="48" alt="Screenshot 2026-08-05 122716" src="https://github.com/user-attachments/assets/50ed2a44-1389-4e38-b441-7966e4bbe41e" />
+im on pt media thingy <img width="277" height="48" alt="Screenshot 2026-08-05 122716" src="https://github.com/user-attachments/assets/50ed2a44-1389-4e38-b441-7966e4bbe41e" />
 
 
 <p align="center">
