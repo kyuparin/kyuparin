@@ -1,3 +1,4 @@
+
 <p align="center">
   <img src="https://64.media.tumblr.com/64239291985a3aee495a6117b9168b93/d083df8da3513e0a-0c/s2048x3072/16ea45e3a1fcec929af1d2e75a2f637e9824f5b2.gifv" width="800">
 </p> 
@@ -14,6 +15,9 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/8d39a571a0802dd861dbde4b89711e53/0d79be5f8e37bdca-5e/s250x400/585f2d71768c5d865cca338dab964b61f0657ccd.gifv" width="250">
 </p>
+
+
+im on pt hall of fame hi <img width="277" height="48" alt="Screenshot 2026-08-05 122716" src="https://github.com/user-attachments/assets/50ed2a44-1389-4e38-b441-7966e4bbe41e" />
 
 
 <p align="center">
