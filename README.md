@@ -17,7 +17,7 @@
 </p>
 
 
-im on pt media thingy <img width="277" height="48" alt="Screenshot 2026-08-05 122716" src="https://github.com/user-attachments/assets/50ed2a44-1389-4e38-b441-7966e4bbe41e" />
+
 
 
 <p align="center">
@@ -44,6 +44,7 @@ $\color{#ffffff}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
  <a href="https://rentry.co/GabrielUltrakill">rentry</a> |
 <a href="https://gasa4.atabook.org/">atabook</a> |
 <a href="https://x.com/kyuparin">twitter</a> |
+<a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://en.pronouns.page/@ultrakilling">pronounspage</a>
 
 $\color{#ffffff}{\textsf{dx schizophrenia + ocd}}$
