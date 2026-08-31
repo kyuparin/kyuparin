@@ -7,11 +7,11 @@
 i have no name. just call me "machine" and move on
 
 Top thing to do on the inter webs!💻
-draw with friends
-talk to friends
-love with friends
-see friends happy with other friends
-draw and write original character and Love♥️
+* draw with friends
+* talk to friends
+* love with friends
+* see friends happy with other friends
+* draw and write original character and Love♥️
 
 l♥o♥v♥e♥ ♥i♥s♥ ♥f♥r♥i♥e♥n♥d♥s♥ ♥d♥o♥n♥’♥t♥ ♥y♥o♥u♥ ♥s♥e♥e♥?
 
