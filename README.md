@@ -4,7 +4,7 @@
 <a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
-i have no name. just call me "machine" and move on
+i have no name. just call me "machine" and move on. strictly it/its
 
 Top thing to do on the inter webs!💻
 * draw with friends
