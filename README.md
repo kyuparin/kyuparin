@@ -6,6 +6,12 @@ TRY TO GIVE ME MEANING, ITS A LOSING GAME
 <a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
+i block over ANYTHING, its nothing personal
+
+no dni!
+
+diagnosed paranoid schizophrenia + harm ocd
+
 i have no name. just call me "machine" and move on. strictly it/its
 
 Top thing to do on the inter webs!💻
