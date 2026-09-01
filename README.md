@@ -1,9 +1,6 @@
 
 
-<details>
-  <summary>flash warn
-    </summary>
-    <p>
+
   <img src="https://64.media.tumblr.com/6ccc78434867f879473b5f6fe39b614b/305c3c9f453d61e8-2b/s400x600/3257f33fb0f8bef7d5ceacd41297107c08ca5c28.gifv" width="150">
   <img src="https://64.media.tumblr.com/1914747a7f8f585fcc69c3fcc2b68f70/305c3c9f453d61e8-50/s250x400/ed3566400bf65f74b3ddb53eeaa1354ed27f7cf5.gifv" width="150">
   <img src="https://64.media.tumblr.com/2e4105eb334e9413377749769459119d/305c3c9f453d61e8-6b/s250x400/088fcb1dd11fa5b0915c84f1d4c030daa580099e.gifv" width="150">
@@ -81,7 +78,6 @@
   <img src="https://64.media.tumblr.com/f4ddec3d66a4242ce48f5d2ec3a86c72/faed0448474c591a-92/s100x200/04b2379beb15bbb9fbd80a1d0820e6319cc8d32f.pnj" width="100">
   </p>
 </p>
-</details> 
 
 
 
