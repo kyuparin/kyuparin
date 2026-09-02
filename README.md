@@ -6,7 +6,7 @@ TRY TO GIVE ME MEANING, ITS A LOSING GAME
 <a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
-<img src="https://64.media.tumblr.com/2f58e6a781864fc790071c504a9d11fc/c318fa892b7c9b84-9b/s250x400/26634818cea94cc9e523fcb985b8f0d3f3c83d63.gifv" width="70"> <img src="https://64.media.tumblr.com/a37d252575baa194db2c2bae3f8fea03/9227f2aa4eff4499-29/s100x200/05904b5d3024ea3678fda315b8b9b2f35c5f74c9.gifv" width="70"> <img src=" " width="70"> <img src=" " width="70">  <img src=" " width="70">  <img src=" " width="70"> 
+<img src="https://64.media.tumblr.com/2f58e6a781864fc790071c504a9d11fc/c318fa892b7c9b84-9b/s250x400/26634818cea94cc9e523fcb985b8f0d3f3c83d63.gifv" width="70"> <img src="https://64.media.tumblr.com/a37d252575baa194db2c2bae3f8fea03/9227f2aa4eff4499-29/s100x200/05904b5d3024ea3678fda315b8b9b2f35c5f74c9.gifv" width="110"> <img src="https://64.media.tumblr.com/5edbe3232ecb847a0a77cdb159889eee/c4a6cd01ec451497-fc/s100x200/460dcf3cb2231dace86e418adf62bcc4ab65a21c.jpg" width="90"> <img src="https://64.media.tumblr.com/69d6caccfd2d1d73577c5446af9eb24d/6f1e5bdf78d09eae-de/s75x75_c1/64ca0357c38651dc6809b9711191c8b38f80d464.gifv" width="70">  <img src="https://64.media.tumblr.com/d262cac8189a9bb70d5414145f6fde76/7516a244d8504961-e4/s100x200/221decf1ea23019e53c39249f9a0e0b4c2260f5a.gifv" width="110">  <img src="https://64.media.tumblr.com/6ef8c5555b4a510386f358692ab7efe2/1a6ae2944316a1fa-c4/s75x75_c1/d9909121f5e014f872ee7ae416ad1f13cb1bfffa.gifv" width="88"> <img src="https://github.com/user-attachments/assets/35c7a821-0b6d-44c3-8a90-1700ead6bdb8" width="70">  <img src="https://64.media.tumblr.com/ba5800f898c49a8573009254890b60a1/0eaf7daac65a55ef-b4/s75x75_c1/bf6828a7e820b7e1f96555eb48c9e31dc67d117f.gifv" width="70">  <img src="https://64.media.tumblr.com/209c4da0a9ee8f9e3dd5c7a6a234438f/8bd81c89a7734230-9d/s100x200/ddbaaefb710a76908f58a74d22b4f30459618520.gifv" width="110">  <img src="https://64.media.tumblr.com/d0fa04e87a1fd01624ccad52241bea53/4be796724bd518c7-33/s100x200/fb9a676cbcbfc9656ee6a01baf7b321d870f3ce4.gifv" width="110">  <img src="https://64.media.tumblr.com/8ef3132723f423a3d22d3fd0075fa173/cf90d1c710160785-42/s100x200/8acca0bc1704feeb15ea316c6b7ed7ab8b4462d6.gifv" width="110"> <img src="https://64.media.tumblr.com/0080beaa865837914478ec3434233a1f/cf90d1c710160785-ef/s100x200/11ae7382ecd0b16359a55f3868215d644f8dd532.gifv" width="110">
 
 
 
@@ -69,7 +69,7 @@ l♥o♥v♥e♥ ♥i♥s♥ ♥f♥r♥i♥e♥n♥d♥s♥ ♥d♥o♥n♥’�
   <img src="https://64.media.tumblr.com/e4dbf5ca9cf10d0332977ce3e5c63c4c/c768c05064c466c4-00/s100x200/11f768274401c9d0b84c24e7447eca7bad3c95fd.pnj" width="100">
   <img src="https://64.media.tumblr.com/7b4cf13b9d779326100afee31ea58fd6/b6441bd5e940e34e-e9/s100x200/538ade8edbd5db118ebb2ca0970446c1ecd5aaee.pnj" width="100">
   <img src="https://64.media.tumblr.com/f4ddec3d66a4242ce48f5d2ec3a86c72/faed0448474c591a-92/s100x200/04b2379beb15bbb9fbd80a1d0820e6319cc8d32f.pnj" width="100">
-  <img src="https://64.media.tumblr.com/3ca26ec11a9a59d235c7d81f93026db1/87553c9b0e78cff5-bf/s100x200/5407e0192c0df0a915e43086fe38ceff8aeff593.gifv" width="100">
+  <img src="https://64.media.tumblr.com/bac1c3ba029a3a2dd5ab3cae76320ab5/f73a88762860b67b-ac/s100x200/f0348802686e3f6746ca11520ec6889b2c1cb83f.gifv" width="100">
   </p>
 </p>
 
