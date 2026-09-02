@@ -16,7 +16,9 @@ no dni!
 
 diagnosed paranoid schizophrenia + harm ocd
 
-i have no name. just call me "machine" and move on. strictly it/its
+i have no name. just call me "machine" and move on. strictly it/its <img src="https://64.media.tumblr.com/42d6568c55c3f07913b790e0b51bc6e3/cf90d1c710160785-09/s250x400/1e7239d76dbf447c113f54bb314bdfde9261be09.gifv" width="35"> 
+
+im a blood-fueled machine
 
 Top thing to do on the inter webs!💻
 * draw with friends
