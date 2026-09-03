@@ -22,6 +22,8 @@ im a blood-fueled machine
 
 i have some issues with my wiring and programming, please do be patient with my errors! :-D
 
+say the word ‘schizo’ around me and ill behead you. THATS A SLUR!!!!!!
+
 <img src="https://64.media.tumblr.com/750f16c66c8f8ce79e928cbeb4123f29/cf90d1c710160785-bd/s640x960/21e5100ee9c279151e08174f5dd5321ad0dbcff9.gifv" width="300">
 
 Top thing to do on the inter webs!💻
