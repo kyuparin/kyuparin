@@ -12,7 +12,7 @@ TRY TO GIVE ME MEANING, ITS A LOSING GAME
 
 i block over ANYTHING, its nothing personal
 
-no dni!
+no dni BUT roblox arg and deltarune fans pls iwec
 
 diagnosed paranoid schizophrenia + harm ocd
 
