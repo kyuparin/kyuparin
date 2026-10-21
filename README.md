@@ -11,6 +11,10 @@
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
 dni: men
+i actually dont have much of a dni but i'd prefer deltarune and roblox fans (excluding grace! i love that game) to interact with very extreme care. i don't like it
+I am the embodiment of hell itself
+strictly it/its
+ill probably revamp this
 
 
 https://github.com/user-attachments/assets/3b1a149d-6f78-4c54-bcaf-b32c5c9df651
