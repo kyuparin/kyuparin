@@ -1,31 +1,93 @@
+<p align="center">
+  <img src="https://64.media.tumblr.com/64239291985a3aee495a6117b9168b93/d083df8da3513e0a-0c/s2048x3072/16ea45e3a1fcec929af1d2e75a2f637e9824f5b2.gifv" width="800">
+</p> 
 
 
 
+
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/256dffb7cfb47aed8a17ac9f9be6522b/2d3ece5312169ad0-9c/s250x400/885eb648f64ef0393e1fce865c3d1ddc454a1018.gifv" width="88">
+  <img src="https://64.media.tumblr.com/7a75a61ff9afe947b0bf4c358b2f2c4b/1eb33066a9c244bf-5f/s250x400/9a170477ed80c2a89f5f0f377f85c092b75fca4b.gifv" width="88">
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/8d39a571a0802dd861dbde4b89711e53/0d79be5f8e37bdca-5e/s250x400/585f2d71768c5d865cca338dab964b61f0657ccd.gifv" width="250">
+</p>
+
+
+
+
+
+<p align="center">
+$\color{#00010a}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\color{#fc0303}{\textsf{BLOOD}}$  $\color{#00010a}{\textsf{IS FUEL}}$ <br> $\color{#00010a}{\textsf{HELL IS}}$  $\color{#fc0303}{\textsf{FULL}}$ <br>
+</p> 
+
+<table>
+<tr>
+<td align="center">
+<img src="https://pbs.twimg.com/media/GYiuWaSa0AAvanM?format=jpg&name=small" width="300">
+</td>
+
+<td align="center">
+
+
+
+ $\color{#fc0303}{\textsf{kyuparin / gabriel / other}}$ <br>
+
+
+  <img src="https://64.media.tumblr.com/c00c15cd308e7a10839c770873be4edb/5760c1c2c519ad28-c2/s250x400/c2f0500eb1fb00a7b24cc11b6cc65f54d6279721.pnj" width="98">   
 
 
  
  <a href="https://rentry.co/GabrielUltrakill">rentry</a> |
 <a href="https://gasa4.atabook.org/">atabook</a> |
-<a href="https://x.com/Ultrakyupi">twitter</a> |
+<a href="https://x.com/kyuparin">twitter</a> |
 <a href="https://kyuparin.straw.page">strawpage</a> |
-<a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
+<a href="https://en.pronouns.page/@ultrakilling">pronounspage</a>
 
-dni: men
-* i actually dont have much of a dni but i'd prefer deltarune and roblox fans (excluding grace, doors and pressure! i love those games, though if you support any problematic creators (ESP PRESSURE AND GRACE) DNIIIIIIIIIII) to interact with very extreme care. i don't like it
-* I am the embodiment of hell itself hi :))))
-* strictly it/its
-* ill probably revamp this
+$\color{#00010a}{\textsf{hell / machine}}$
 
+$\color{#fc0303}{\textsf{embodiment of hell herself}}$ <br>
 
-https://github.com/user-attachments/assets/3b1a149d-6f78-4c54-bcaf-b32c5c9df651
+$\color{#00010a}{\textsf{ultrakill, phm, rain world enthusiast}}$
 
+$\color{#fc0303}{\textsf{artist}}$ <br>
 
-<details>
-  <summary>press here 4 ma art</summary>
-<img width="1576" height="1188" alt="image" src="https://github.com/user-attachments/assets/1a2e9d01-0745-4d62-b997-110f274100bf" /> <img width="1423" height="1208" alt="image" src="https://github.com/user-attachments/assets/e3cdf690-72c9-4007-809b-e546fcb6b6a2" /> <img width="1536" height="2048" alt="image" src="https://github.com/user-attachments/assets/122ef4ef-978b-42df-ba66-f7ee6b1c8062" /> <img width="397" height="713" alt="image" src="https://github.com/user-attachments/assets/6efaa530-fe33-42ee-bf6d-39eee68b3275" /> <img width="770" height="1024" alt="image" src="https://github.com/user-attachments/assets/2dfca3c3-fdea-4718-892f-b1e96605e6c8" /> <img width="1422" height="1075" alt="image" src="https://github.com/user-attachments/assets/777f3fcb-52cb-4632-8c5f-91286525cf90"/>
-</details>
+$\color{#00010a}{\textsf{turkish + bosnian}}$ <br>
 
+$\color{#fc0303}{\textsf{STRICTLY IT/ITS}}$ <br>
+
+ <img src="https://64.media.tumblr.com/231531f5629278daab5c94c0426a27e9/5760c1c2c519ad28-5b/s100x200/85ea348fd893ecd901e076dee523d9265e2fccfe.gifv" width="68">  <img src="https://64.media.tumblr.com/ebd8515902b4fe4de044ac55bbe05e29/5760c1c2c519ad28-64/s100x200/c0896fb78702f125929aa82a6750b8921ad6f454.gifv" width="68">  <img src="https://64.media.tumblr.com/5f479d708700b15c4b5391a1b6047f58/5760c1c2c519ad28-ae/s100x200/ece560172e2da8399692c937a165cedf9ef16c1f.gifv" width="68">  
 
 
+</td>
+
+<td align="center">
+<img src="https://pbs.twimg.com/media/GYiuWaRasAApqrO?format=jpg&name=large" width="300">
+</td>
+</tr>
+</table>
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+</div>
