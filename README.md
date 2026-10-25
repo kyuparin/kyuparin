@@ -33,7 +33,7 @@ $\color{#767676}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
 
 
 
- $\color{#fc0303}{\textsf{kyuparin / gabriel / other}}$ <br>
+ $\color{#fc0303}{\textsf{hell / mirage}}$ <br>
 
 
   <img src="https://64.media.tumblr.com/c00c15cd308e7a10839c770873be4edb/5760c1c2c519ad28-c2/s250x400/c2f0500eb1fb00a7b24cc11b6cc65f54d6279721.pnj" width="98">   
@@ -46,7 +46,7 @@ $\color{#767676}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
 <a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://en.pronouns.page/@ultrakilling">pronounspage</a>
 
-$\color{#00010a}{\textsf{hell / machine}}$
+$\color{#00010a}{\textsf{deltarune, roblox (excluding doors-esque games) dni}}$
 
 $\color{#fc0303}{\textsf{embodiment of hell herself}}$ <br>
 
