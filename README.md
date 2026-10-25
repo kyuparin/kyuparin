@@ -20,7 +20,7 @@
 
 
 <p align="center">
-$\color{#00010a}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\color{#fc0303}{\textsf{BLOOD}}$  $\color{#00010a}{\textsf{IS FUEL}}$ <br> $\color{#00010a}{\textsf{HELL IS}}$  $\color{#fc0303}{\textsf{FULL}}$ <br>
+$\color{#767676}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\color{#fc0303}{\textsf{BLOOD}}$  $\color{#767676}{\textsf{IS FUEL}}$ <br> $\color{#767676}{\textsf{HELL IS}}$  $\color{#fc0303}{\textsf{FULL}}$ <br>
 </p> 
 
 <table>
