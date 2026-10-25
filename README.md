@@ -46,7 +46,8 @@ $\color{#767676}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
 <a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
-$\color{#767676}{\textsf{deltarune, roblox (excluding doors-esque games) dni}}$
+$\color{#767676}{\textsf{deltarune, roblox}}$
+$\color{#767676}{\textsf{doors-esque games) dni}}$
 
 $\color{#fc0303}{\textsf{embodiment of hell herself}}$ <br>
 
