@@ -42,19 +42,19 @@ $\color{#767676}{\textsf{MANKIND IS}}$  $\color{#fc0303}{\textsf{DEAD}}$ <br> $\
  
  <a href="https://rentry.co/GabrielUltrakill">rentry</a> |
 <a href="https://gasa4.atabook.org/">atabook</a> |
-<a href="https://x.com/kyuparin">twitter</a> |
+<a href="https://x.com/ultrakyupi">twitter</a> |
 <a href="https://kyuparin.straw.page">strawpage</a> |
-<a href="https://en.pronouns.page/@ultrakilling">pronounspage</a>
+<a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
-$\color{#00010a}{\textsf{deltarune, roblox (excluding doors-esque games) dni}}$
+$\color{#767676}{\textsf{deltarune, roblox (excluding doors-esque games) dni}}$
 
 $\color{#fc0303}{\textsf{embodiment of hell herself}}$ <br>
 
-$\color{#00010a}{\textsf{ultrakill, phm, rain world enthusiast}}$
+$\color{#767676}{\textsf{ultrakill, phm, rain world enthusiast}}$
 
 $\color{#fc0303}{\textsf{artist}}$ <br>
 
-$\color{#00010a}{\textsf{turkish + bosnian}}$ <br>
+$\color{#767676}{\textsf{turkish + bosnian}}$ <br>
 
 $\color{#fc0303}{\textsf{STRICTLY IT/ITS}}$ <br>
 
