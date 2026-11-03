@@ -55,7 +55,7 @@ $\color{#767676}{\textsf{ultrakill, phm, rain world enthusiast}}$
 
 $\color{#fc0303}{\textsf{artist}}$ <br>
 
-$\color{#767676}{\textsf{turkish + bosnian}}$ <br>
+$\color{#767676}{\textsf{disabled}}$ <br>
 
 $\color{#fc0303}{\textsf{STRICTLY IT/ITS}}$ <br>
 
