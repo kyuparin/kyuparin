@@ -8,9 +8,10 @@
 <a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
+I am The embodiment of hell herself shoved inside a little robot
 
-<img width="352" height="124" alt="hotgpus" src="https://github.com/user-attachments/assets/77d1bdbd-dbda-41f3-b9f9-80ddbbe24819" />
 
+<img width="88" height="31" alt="hotgpus (1)" src="https://github.com/user-attachments/assets/18c4be63-8b17-4621-b74d-015bff7b4bac" />
 
 
 
