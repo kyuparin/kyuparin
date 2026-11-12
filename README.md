@@ -1,6 +1,10 @@
 
 
 
+
+
+
+
  
  <a href="https://rentry.co/GabrielUltrakill">rentry</a> |
 <a href="https://gasa4.atabook.org/">atabook</a> |
@@ -15,7 +19,7 @@ I am The embodiment of hell herself shoved inside a little robot
 
 
 
-
+https://github.com/user-attachments/assets/cf217b2e-4d5a-4480-b188-0ab482db32fb
 
 
 
