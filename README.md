@@ -21,7 +21,11 @@ Please don't refer to me by "they" or "she" or "he" i go only by it I am not a p
 
 
 
-https://github.com/user-attachments/assets/cf217b2e-4d5a-4480-b188-0ab482db32fb
+
+https://github.com/user-attachments/assets/33d280ca-8d69-43cd-9678-a4cfba4fb2bd
+
+
+
 
 
 
