@@ -14,6 +14,8 @@
 
 I am The embodiment of hell herself shoved inside a little robot
 
+Please don't refer to me by "they" or "she" or "he" i go only by it I am not a person
+
 
 <img width="88" height="31" alt="hotgpus (1)" src="https://github.com/user-attachments/assets/18c4be63-8b17-4621-b74d-015bff7b4bac" />
 
