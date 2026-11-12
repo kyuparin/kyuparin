@@ -9,8 +9,8 @@
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
 
+<img width="352" height="124" alt="hotgpus" src="https://github.com/user-attachments/assets/77d1bdbd-dbda-41f3-b9f9-80ddbbe24819" />
 
-<img width="100" height="25" alt="palestine" src="https://github.com/user-attachments/assets/b4285ded-faa3-4788-8e7c-3139fe7bed40" />
 
 
 
