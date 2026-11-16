@@ -18,6 +18,8 @@ Please don't refer to me by "they" or "she" or "he" i go only by it I am not a p
 
 I'm the trivia person of docks. I host trivia quizzes
 
+Intersex tfem butch
+
 <details>
 <summary>Some art!</summary>
 
