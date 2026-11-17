@@ -13,9 +13,9 @@ $\color{#fc0303}{\textsf{ALEA IACTA EST. ENCORE!}}$
 <a href="https://kyuparin.straw.page">strawpage</a> |
 <a href="https://pronouns.cc/@gabrielultrakill">pronounspage</a>
 
-I am The embodiment of hell herself shoved inside a little robot
+I am The embodiment of hell herself 
 
-Please don't refer to me by "they" or "she" or "he" i go only by it I am not a person
+Please don't refer to me by "they" or "she" or "he" i go only by it I am not a person.
 
 I'm the trivia person of docks. I host trivia quizzes
 
