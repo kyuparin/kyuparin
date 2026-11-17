@@ -3,8 +3,9 @@
 
 
 
-
-
+$\color{#fc0303}{\textsf{WELCOME BACK. ENCORE!}}$ 
+$\color{#fc0303}{\textsf{PALADIN, LONE RANGER, ONE-MACHINE SHOW, ABOMINABLY CONSUMMATE, SUI GENERIS, BITTEN BITER OF THE ANTEDILUVIAN TAIL:}}$ 
+$\color{#fc0303}{\textsf{ALEA IACTA EST. ENCORE!}}$
  
  <a href="https://rentry.co/GabrielUltrakill">rentry</a> |
 <a href="https://gasa4.atabook.org/">atabook</a> |
