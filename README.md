@@ -21,6 +21,8 @@ I'm the trivia person of docks. I host trivia quizzes
 
 Intersex tfem butch
 
+No DNI, but if you consider yourself to be involved with any of said things, please IWEC: Roblox ARGS nad Roblox in general, deltarune, undertale, publicly profic/darkship, 'contraqueer' and radqueer ETC
+
 <details>
 <summary>Some art!</summary>
 
