@@ -17,11 +17,11 @@ I am The embodiment of hell herself
 
 Please don't refer to me by "they" or "she" or "he" i go only by it I am not a person.
 
-I'm the trivia person of docks. I host trivia quizzes
-
-Intersex tfem butch
+Intersex tfem butch lesbian
 
 No DNI, but if you consider yourself to be involved with any of said things, please IWEC: Roblox ARGS nad Roblox in general, deltarune, undertale, publicly profic/darkship, 'contraqueer' and radqueer ETC
+
+ill update dis l8r
 
 <details>
 <summary>Some art!</summary>
